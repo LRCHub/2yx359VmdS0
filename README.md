@@ -1,0 +1,68 @@
+# アバンティーズ – PLAY NEW WORLD
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+PLAY NEW WORLD
+PLAY NEW WORLD
+PLAY NEW WORLD
+何もない街で初めてAction
+junction迷うことはないと
+選んだ道はレンズの向こう
+校舎から抜け出したeveryday
+あっという間にやりたい事費やし
+No Money
+でもそれでいいから立ってる
+PLAY NEW WORLDはここらで待ってる
+真新しい事でばかりで
+ぶらつく正解と今
+何年目でもドキドキ止まらぬ
+4色の生活
+アンチコメントで
+水溜まりにハマっても
+仲間とDiscovery
+Good Bad Good Good Bad
+の枠に囚われちゃもったいないよ
+ジャージも制服も脱ぎ捨て
+UP and Down×2
+見えないTubeで繋がってる
+魔法と思うような未来をchoose
+PLAY NEW WORLD
+再生すれば 目の前広がる世界
+PLAY NEW WORLD
+まだ見た事のない
+世界見尽くしたいんだ
+PLAY NEW WORLD
+PLAY NEW WORLD
+PLAY NEW WORLD
+背伸びしたくて次が見たくて
+大人になってるような気がして
+始めから分かってたピーターパンも
+今とか先とか実感ないよ
+あっと気付いた時にはこの手から
+溢れる 笑われてもちょうどいい
+太陽が東から海へとeveryday
+電車の中大体Wi-Fiないけど
+リアタイで輪が制限なく伝わってる
+何年後もコメントごめんよ
+飽きさせるつもりは微塵もないから
+解像度に囚われない
+エンタメがここにある
+狭い部屋から抜け出しここから
+Life gone on×2
+見えないTubeで繋がってる
+走り出そうまだ見ぬ未来をChoose
+PLAY NEW WORLD
+再生すれば 目の前広がる世界
+PLAY NEW WORLD
+まだ見た事のない
+世界見尽くしたい
+PLAY NEW WORLD
+再生すれば 目の前広がる世界
+PLAY NEW WORLD
+誰も見た事ない
+世界作りたいんだ
+PLAY NEW WORLD
+PLAY NEW WORLD
+PLAY NEW WORLD
+```
